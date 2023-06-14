@@ -1,1 +1,0 @@
-# nasywakh.github.io
